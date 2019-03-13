@@ -2,4 +2,4 @@
 new repository
 
 
-LET´S GOOO BENFICAAAAAA
+LE GOOO BENFICAAAAAA
